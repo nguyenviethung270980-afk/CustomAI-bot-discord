@@ -1,3 +1,4 @@
+If you want vote for my bot https://top.gg/bot/1409750318656389120?s=0d039c7eec754
 # 🤖 CustomAI
 
 <div align="center">
